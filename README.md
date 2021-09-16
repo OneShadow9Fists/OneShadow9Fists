@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @OneShadow9Fists
+- 👀 I’m interested in video games/game design 
+- 🌱 I’m currently learning "the art of game design"
+- 💞️ I’m looking to collaborate on small projects related to video games.
+- 📫 How to reach me Discord: OneShadow9Fists#1650
+- I just want to learn more about the world.
